@@ -7,7 +7,7 @@
        ,$$$$$bmmd$$$P^'
      .d$$$$$$$$$$P'
      $$^' `"^$$$'
-     $:     ,$$:      Get your ASSCIIked here:
+     $:     ,$$:      Get yours here:
      `b     :$$
             $$:       http://firedev.com
             $$
